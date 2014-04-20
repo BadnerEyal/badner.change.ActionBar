@@ -12,3 +12,7 @@ Change icon on bar.
 
 
 ![Alt desc](http://i61.tinypic.com/orknyo.jpg)
+
+![Alt desc](http://i57.tinypic.com/2mpft01.jpg)
+
+![Alt desc](http://i59.tinypic.com/345eurr.jpg)
